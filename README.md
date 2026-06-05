@@ -1,0 +1,1 @@
+# receipts-space-macos.github.io
